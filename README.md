@@ -15,7 +15,7 @@
         / /\         `) )    / / `"".`\                         building useful and reliable systems  
   , _.-'.'\ \        / /    ( (     / /                         with unique technologies.             
    `--~`   ) )    .-'.'      '.'.  | (                                                                
-          (/`    ( (`          ) )  '-;                                  [tg: @mxxntype]              
+          (/`    ( (`          ) )  '-;                                  [tg: @mxxntyp3]              
            `      '-;         (-'                                                                     
 ```
 
